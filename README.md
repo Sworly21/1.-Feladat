@@ -1,4 +1,4 @@
-# [Név]
+# Szabó Bence
 
 
 ## Hogyan kezdj neki?
